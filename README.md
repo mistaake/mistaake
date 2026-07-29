@@ -9,5 +9,7 @@ demiboy, he/they
 
 eng/vie im not good at eng so
 
-<img width="380" height="350" alt="image" src="https://github.com/user-attachments/assets/f07e6803-870c-4343-9b97-d623dcacda7b" />  　 　  　　𝙧 𝙚 𝙗 𝙯 𝙮 𝙮 𝙭
+^_^ alt rock and hyperpop for life
+
+<img width="470" height="350" alt="image" src="https://github.com/user-attachments/assets/ac9b6ab9-c49e-434c-9dfa-b3360af80cff" /> 　 　  　　adam gontier lol
 
